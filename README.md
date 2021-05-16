@@ -1,0 +1,1 @@
+The dish is byriani. a dish made, originally, in Persia, and brougt to India by the Mughals in the 1398 by the Turk-Mongol conqueror, Taimur. It is very well known in India and Pakistan, mostly eaten in special or religious occasions depending on the culture or religion.
